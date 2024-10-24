@@ -8,3 +8,4 @@ Você pode entrar em contato comigo:📧
 eopaix.nada.ainda@gmail.com
 
 @Brunoamorim
+![](https://media1.tenor.com/m/YU7xce8F7goAAAAd/r9-ronaldo-nazario.gif)
