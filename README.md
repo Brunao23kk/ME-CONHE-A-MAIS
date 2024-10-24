@@ -12,6 +12,6 @@ eopaix.nada.ainda@gmail.com
 
 
 
-![](https://media1.tenor.com/m/YU7xce8F7goAAAAd/r9-ronaldo-nazario.gif)
+![](https://media1.tenor.com/m/d-stWS-f38wAAAAC/ronaldo-r9.gif)
 
 
